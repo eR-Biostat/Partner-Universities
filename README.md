@@ -1,5 +1,4 @@
-The >eR-Biostat initative
-# Partner Universities
+# The >eR-Biostat initative: Partner Universities in the south.
 ## Department of Epidemiology and Biostatistics, Gondar University, Ethiopia.
 * Contact person: Tadsse Awoke.
 * E mail: tawoke7@gmail.com 
