@@ -1,2 +1,2 @@
 The >eR-Biostat initative
-# Partner-Universities
+# Partner Universities
