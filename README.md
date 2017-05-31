@@ -7,3 +7,6 @@
 * Education program: Trajectory in biostatistics within the master program in statistics.
 * Contact person: Prof. Legesse Debusho.
 * E mail: debuslk@unisa.ac.za 
+# Interested to join the initiative as a partner university in the South ?
+* Contact Ziv Shkedy ziv.shkedy@uhasselt.be
+
