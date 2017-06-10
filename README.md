@@ -8,5 +8,5 @@
 * Contact person: Prof. Legesse Debusho.
 * E mail: debuslk@unisa.ac.za 
 # Interested to join the initiative as a partner university in the South ?
-* Contact Ziv Shkedy ziv.shkedy@uhasselt.be
+* Contact us by email erbiostat@gmail.com or contact Ziv Shkedy ziv.shkedy@uhasselt.be
 
