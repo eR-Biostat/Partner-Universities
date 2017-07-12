@@ -7,6 +7,10 @@
 * Education program: Trajectory in biostatistics within the master program in statistics.
 * Contact person: Prof. Legesse Debusho.
 * E mail: debuslk@unisa.ac.za 
+## Department of statistics, Wachemo University, Ethiopia.
+* Education program: Bachelor of Science in Statistics.
+* Contact person: Ashenafi Abebe Gaenamo.
+* E mail: ashujajura@gmail.com, ashenafiA@wcu.edu.et  
 # Interested to join the initiative as a partner university in the South ?
 * Contact us by email erbiostat@gmail.com or contact Ziv Shkedy ziv.shkedy@uhasselt.be
 
